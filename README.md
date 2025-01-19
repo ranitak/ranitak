@@ -1,3 +1,3 @@
-## Hola, me llamo Pelayo pero tu puedes llamarme cuando quieras👋
+## Hola, me llamo Jorge Mendoza pero tu puedes llamarme cuando quieras👋
 
-![image](https://github.com/user-attachments/assets/79669af9-d406-49e8-859d-5a1570525e21)
+![image](https://github.com/user-attachments/assets/9f536e34-a1a2-4026-8e21-d872b2359727)
